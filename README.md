@@ -1,4 +1,12 @@
-<br><br><br><br>
+<br>
+
+https://sonu.rocks
+
+https://sonukushwaha.me
+
+https://www.sonukumarkushwaha.live/
+
+<br><br><br>
 
 
 **&copy; [Sonu Kumar Kushwaha](https://flyingsonu122.github.io)**

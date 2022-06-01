@@ -1,5 +1,9 @@
 <br>
 
+https://singlebucks.blogspot.com/
+
+https://singlebucks.live
+
 https://sonu.rocks
 
 https://sonukushwaha.me

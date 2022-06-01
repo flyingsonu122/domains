@@ -4,7 +4,7 @@ https://sonu.rocks
 
 https://sonukushwaha.me
 
-https://www.sonukumarkushwaha.live/
+https://www.sonukumarkushwaha.live
 
 <br><br><br>
 
